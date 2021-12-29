@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 💬 Ask me about **Blockchain Stuffs**
+
+- 📫 How to reach me **dabbakuti.salman@gmail.com**
+
+- ⚡ Fun fact **I know all Programming Memes🤩**
